@@ -1,1 +1,0 @@
-# Rangking-Penerus-Gobes
